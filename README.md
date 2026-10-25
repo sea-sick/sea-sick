@@ -11,4 +11,4 @@
 
 ‎ 
 
-</a> <a href=https://rentry.co/copperbottoms> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> </a> <a href=https://seasick.atabook.org><img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025132951.png" width="85"/></img></a> </a> <a href=https://listography.com/copperbottoms> <img src="https://files.catbox.moe/4a92rz.png" width="85"/></img></a> <a href=https://pronouns.cc/@copperbottoms> <img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025133238.png" width="85"/></img></a>
+</a> <a href=https://rentry.co/copperbottoms> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> </a> <a href=https://seasick.atabook.org><img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025132951.png" width="85"/></img></a> </a> <a href=https://listography.com/copperbottoms> <img src="https://files.catbox.moe/4a92rz.png" width="85"/></img></a> <a href=https://pronouns.cc/@seasick> <img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025133238.png" width="85"/></img></a>
