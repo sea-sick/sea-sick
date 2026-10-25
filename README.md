@@ -5,5 +5,4 @@
 </a> <img src="https://files.catbox.moe/9dranf.png" width="400"/></img></a>
 
 
-</a> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a>
-</a> <img src="https://files.catbox.moe/5cibej.png" width="85"/></img></a>
+</a> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> 
