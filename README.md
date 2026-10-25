@@ -1,4 +1,5 @@
-wip ok???? i am working on dis... eventually
+ <div align="center">
+   
 
-<img width="370" height="320" alt="image" src="https://github.com/user-attachments/assets/688f7235-666b-44eb-9210-138e9bd7e71e" />
 
+</a> <img src="https://files.catbox.moe/9dranf.png">
