@@ -3,4 +3,4 @@
 
 </a> <img src="https://files.catbox.moe/9dranf.png" width="400"/></img></a>
 
-</a> <a href=https://rentry.co/copperbottoms> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> </a> <a href=https://seasick.atabook.org><img src="https://files.catbox.moe/5cibej.png" width="85"/></img></a> </a> <a href=https://listography.com/copperbottoms> <img src="https://files.catbox.moe/4a92rz.png" width="85"/></img></a>
+</a> <a href=https://rentry.co/copperbottoms> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> </a> <a href=https://seasick.atabook.org><img src="https://files.catbox.moe/5cibej.png" width="85"/></img></a> </a> <a href=https://listography.com/copperbottoms> <img src="https://files.catbox.moe/4a92rz.png" width="85"/></img></a> <a href=https://pronouns.cc/@copperbottoms> <img src="https://files.catbox.moe/tshtsz.png" width="85"/></img></a>
