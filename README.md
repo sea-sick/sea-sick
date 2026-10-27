@@ -11,7 +11,6 @@
 
 </a> <img src="https://files.catbox.moe/9dranf.png" width="400"/></img></a>
 
-‎ 
 
 </a> <a href=https://rentry.co/copperbottoms> <img src="https://files.catbox.moe/h797xo.png" width="85"/></img></a> </a> <a href=https://seasick.atabook.org><img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025132951.png" width="85"/></img></a> </a> <a href=https://listography.com/seasick> <img src="https://files.catbox.moe/4a92rz.png" width="85"/></img></a> <a href=https://pronouns.cc/@seasick> <img src="https://file.garden/at4LwpPqJ5FTVRQZ/Untitled1973_20261025133238.png" width="85"/></img></a>
 
@@ -21,11 +20,11 @@
   
 ‎ 
 
-  
-‎ 
-‎
-<p align="center">
-  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ajqe2s5sfc6f6zpnj3s7mkta2m&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=true&bar_color=6aafb4&bar_color_cover=false">
-  </a>
-</p>
+
+
+
+
+
+
+
+            
